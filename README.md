@@ -1,1 +1,1 @@
-# RiceDatathon2021-Cheveron
+# RiceDatathon2021-Chevron
